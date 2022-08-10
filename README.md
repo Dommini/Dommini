@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dommini
+- 👀 I’m interested in jeże
+- 🌱 I’m currently learning programming, I'm in a technical college majoring in programming technician
+- 💞️ I’m looking to collaborate on with a software company
+- 📫 How to reach me by Discord (jeż🦔#9832)
